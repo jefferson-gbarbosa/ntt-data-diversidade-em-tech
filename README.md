@@ -1,0 +1,1 @@
+# ntt-data-diversidade-em-tech
